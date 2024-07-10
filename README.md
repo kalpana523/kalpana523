@@ -3,9 +3,7 @@
 
 <img align="right" alt="coding" width="400" src="https://gifdb.com/images/high/coding-girl-animation-fe7t4gejurmtof8v.gif">
 
-- 📫 How to reach me **nishu0522203@gmail.com**
-
-- ⚡ Fun fact **Heart-break songs make me happy🙈**
+- 📫 How to reach me **kalpana.kumaribhagwat@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
